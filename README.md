@@ -1,1 +1,1 @@
-# TANRI-A-KINA-S-KT-R-G-T
+KekokomandO.cc
